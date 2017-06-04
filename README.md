@@ -1,0 +1,1 @@
+tydzien1_zad1
